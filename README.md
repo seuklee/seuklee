@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @seuklee
+- 👀 I’m interested in physics
+- 🌱 I’m in OQT-Lab
